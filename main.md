@@ -1,0 +1,1 @@
+salommen yangi ozgarish man
